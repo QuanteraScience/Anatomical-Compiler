@@ -1,0 +1,4 @@
+- [Where is Anatomy Encoded in Living Systems? | Michael Levin](https://youtu.be/AC2_S-wcJes)
+- [Michael Levin: Anatomical decision-making by cellular collectives](https://youtu.be/Z-9rLlFgcm0)
+- [MorphoTalks - Michael Levin](https://youtu.be/62U6LBfig9Y)
+- [Collective intelligence of cell swarms | Prof. Michael Levin | AI Forward Forum](https://youtu.be/ZmRaIQOlxTY)
